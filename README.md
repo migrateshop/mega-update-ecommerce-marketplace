@@ -1,4 +1,4 @@
-<h1 align="center"> Establish Your eCommerce Website With Our Amazon Clone Script </h1>
+<h1 align="center"> Migrateshop Announce a Mega update on all our eCommerce WordPress Themes! </h1>
 
 Hello everyone! 
 
